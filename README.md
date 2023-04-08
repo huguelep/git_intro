@@ -1,1 +1,2 @@
 Patrick Huguelet
+huguelep@oregonstate.edu
